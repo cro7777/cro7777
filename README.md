@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Cristina
+- 👀 I’m interested in a variety of things: food, health, microbiology, educational facts, used to be into politics (not anymore since the pandemic - you can't really blame me either!)
+- 🌱 I’m currently learning how to do my job properly without conscious bias
+- 💞️ I’m looking to collaborate on development and business side and make them talk to each other via my work, if possible.
+- 📫 How to reach me email me please (either at ecn // the regular forces email) - once we agreed when to meet each other I can hop onto MS Teams for chat/talk. 
